@@ -1,11 +1,13 @@
 ---
-layout: default
+layout: story
 title: An Unusual Slave Contract
+author:
+    name: Serhazat
+    url: https://www.ticklingforum.com/member.php?158587-Serhazat
+source:
+    name: TMF
+    url: https://www.ticklingforum.com/showthread.php?311602-An-Unusual-Slave-Contract-(F-F-stomach)
 ---
-
-# An Unusual Slave Contract
-
-## [Serhazat](https://www.ticklingforum.com/member.php?158587-Serhazat) on [TMF](https://www.ticklingforum.com/showthread.php?311602-An-Unusual-Slave-Contract-(F-F-stomach))
 
 Maya wondered what morbid fascination drove her to check the banking app on her phone again. It wasn't like there was some magic ritual that would make the number grow larger if she checked it 10 times in as many minutes. And sure enough, she had barely enough to pay for a few more meals if she made it stretch, just like she'd had 30 seconds ago. The half-Asian college girl sighed with misery and went back to thumbing through job listings. Preferably one of them would have a signing bonus that she could use to pay for a hotel room.
 

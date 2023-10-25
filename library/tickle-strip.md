@@ -1,11 +1,13 @@
 ---
-layout: default
+layout: story
 title: Tickle Strip
+author:
+    name: Myriads
+    url: https://www.ticklingforum.com/member.php?14-Myriads
+source:
+    name: TMF
+    url: https://www.ticklingforum.com/showthread.php?13-Tickle-Strip-Part-one
 ---
-
-# Tickle Strip
-
-## [Myriads](https://www.ticklingforum.com/member.php?14-Myriads) on [TMF](https://www.ticklingforum.com/showthread.php?13-Tickle-Strip-Part-one)
 
 ## Part One
 

@@ -1,10 +1,13 @@
 ---
-layout: default
+layout: story
 title: Auction at the Club
+author:
+    name: Dev
+    url: https://www.ticklingforum.com/member.php?11740-DEV
+source:
+    name: TMF
+    url: https://www.ticklingforum.com/showthread.php?326016-Auction-At-The-Club-(F-F-F-M-M-F-M-M-Consensual)
 ---
-# Auction at the Club
-
-## [Dev](https://www.ticklingforum.com/member.php?11740-DEV) on [TMF](https://www.ticklingforum.com/showthread.php?326016-Auction-At-The-Club-(F-F-F-M-M-F-M-M-Consensual))
 
 “I blame you for this and everything that's about to happen.”
 

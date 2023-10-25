@@ -1,11 +1,13 @@
 ---
-layout: default
+layout: story
 title: "Tickle Street: Brittany's Pool Party"
+author: 
+    name: tummyticklish01
+    url: "https://www.ticklingforum.com/member.php?1234-tummyticklish01"
+source:
+    name: TMF
+    url: https://www.ticklingforum.com/showthread.php?9634-Tickle-Street-Brittany-s-Pool-Party
 ---
-
-# Tickle Street: Brittany's Pool Party
-
-# [tummyticklish01](https://www.ticklingforum.com/member.php?1234-tummyticklish01) on [TMF](https://www.ticklingforum.com/showthread.php?9634-Tickle-Street-Brittany-s-Pool-Party)
 
 Stars of this story: Brittany, Candice, Melissa, and Meghan.
 
