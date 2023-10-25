@@ -11,7 +11,11 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## Tickle Street
 
+### [Ashley and Melissa's History Project](/library/tickle-street/ashley-and-melissas-history-project.html)
+
 ### [Brittany's Pool Party](/library/tickle-street/brittanys-pool-party.html)
+
+### [Morgan's Biology Class](/library/tickle-street/morgans-biology-class.html)
 
 ## [Tickle Strip](/library/tickle-strip.html)
 
