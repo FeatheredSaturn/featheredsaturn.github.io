@@ -8,6 +8,6 @@ title: Home
 
 # FeatheredSaturn
 
-## Library
+## [Library](/library)
 
-## Games
+## [Games](/games)
