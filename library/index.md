@@ -19,4 +19,6 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Tickle Strip](/library/tickle-strip.html)
 
+## [Ticklers' Lottery](/library/ticklers-lottery.html)
+
 ## [An Unusual Slave Contract](/library/unusual-slave-contract.html)
