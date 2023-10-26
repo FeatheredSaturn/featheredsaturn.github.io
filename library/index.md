@@ -21,4 +21,6 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Ticklers' Lottery](/library/ticklers-lottery.html)
 
+## [Truth or Dare](/library/truth-or-dare.html)
+
 ## [An Unusual Slave Contract](/library/unusual-slave-contract.html)
