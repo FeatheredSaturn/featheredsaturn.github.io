@@ -15,6 +15,10 @@ Here is a collection of stories about tickling I found entertaining.
 
 ### [Chapter 2](/library/kittletown/part-two.html)
 
+## Tales from the Golden Feather
+
+### [Part 5: The Harper's Tale](/library/tales-from-the-golden-feather/harpers-tale.html)
+
 ## Tickle Street
 
 ### [Ashley and Melissa's History Project](/library/tickle-street/ashley-and-melissas-history-project.html)
