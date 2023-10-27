@@ -11,6 +11,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Auction at the Club]({% link library/auction-at-the-club.md %})
 
+## [Beach Party Tickle!](/library/beach-party-tickle.html)
+
 ## [Emma's Day at the Renn Faire](/library/emmas-day-at-the-renn-faire.html)
 
 ## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
@@ -22,6 +24,8 @@ Here is a collection of stories about tickling I found entertaining.
 ### [Prologue and Chapter 1](/library/kittletown/part-one.html)
 
 ### [Chapter 2](/library/kittletown/part-two.html)
+
+## [Rachel at the Fair](/library/rachel-at-the-fair.html)
 
 ## Tales from the Golden Feather
 
