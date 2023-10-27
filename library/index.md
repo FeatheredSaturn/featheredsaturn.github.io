@@ -11,7 +11,11 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Auction at the Club]({% link library/auction-at-the-club.md %})
 
+## [Emma's Day at the Renn Faire](/library/emmas-day-at-the-renn-faire.html)
+
 ## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
+
+## [It's All For A Good Cause...](/library/its-all-for-a-good-cause.html)
 
 ## Kittletown
 
