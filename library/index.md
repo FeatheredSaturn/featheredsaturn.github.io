@@ -13,6 +13,10 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Beach Party Tickle!](/library/beach-party-tickle.html)
 
+## [Camping Trip](/library/camping-trip.html)
+
+## [The Circle](/library/circle.html)
+
 ## [Emma's Day at the Renn Faire](/library/emmas-day-at-the-renn-faire.html)
 
 ## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
