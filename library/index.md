@@ -7,6 +7,8 @@ title: Library
 
 Here is a collection of stories about tickling I found entertaining.
 
+## [Amusement Park Hysteria](/library/amusement-park-hysteria.html)
+
 ## [Auction at the Club]({% link library/auction-at-the-club.md %})
 
 ## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
