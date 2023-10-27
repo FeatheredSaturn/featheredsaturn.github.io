@@ -9,6 +9,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Auction at the Club]({% link library/auction-at-the-club.md %})
 
+## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
+
 ## Kittletown
 
 ### [Prologue and Chapter 1](/library/kittletown/part-one.html)
