@@ -47,6 +47,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Ticklers' Lottery](/library/ticklers-lottery.html)
 
+## [Tickling a Cute, But Shy, First Timer](/library/tickling-a-cute-but-shy-first-timer.html)
+
 ## [Toll-Booth Tickling](/library/toll-booth-tickling.html)
 
 ## [Truth or Dare](/library/truth-or-dare.html)
