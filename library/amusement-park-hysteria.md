@@ -11,9 +11,7 @@ source:
 Peggy was very excited about the coming of the new amusement
 park. Ever since she was a little girl, she has always loved the amusement
 park. All the games and rides. The fun house, and, especially, the house
-of
-
-horrors.
+of horrors.
 
 There was something about being frightened that Peggy enjoyed.
 She wasn't quite sure what it was, but it was a feeling of helplessness. An
@@ -32,26 +30,19 @@ descriptions of unusual torments.
 One of Peggy's favorite accounts, was that of Tickle torture.
 She was very excited by the thought of this type of punishment. Of course,
 being as ticklish as she was, Peggy could only imagine the madness it must
-have
-brought it's unfortunate victims, but it fascinated her just the same.
+have brought it's unfortunate victims, but it fascinated her just the same.
 
 It was a comfortably warm Saturday evening, when Peggy went to
 the debut of the new amusement park. The stars were shining brightly, and a
 warm whisper of a breeze, whisked it's way through the crowded park.
-Because
-
-this was the debut weekend for the park, it would be open all night. The
+Because this was the debut weekend for the park, it would be open all night. The
 weather couldn't be better, and the turnout was fantastic.
 
 To Peggy's utter delight, she was to find out that the park
 offered the largest horror house for 15 states! It was a feature attraction
 that sported a special sideline attraction called "Dungeon Masters." The
-theme
-of this attraction was "Real Drama" as it would have happened in 15th and
-16th
-century Europe. Supposedly, there were to be recreations of actual
-tortures,
-
+theme of this attraction was "Real Drama" as it would have happened in 15th and
+16th century Europe. Supposedly, there were to be recreations of actual tortures,
 performed on torture equipment, painstakingly detailed to that of the actual
 instruments used in their time.
 
@@ -94,7 +85,6 @@ What's
 the worst they could do to her. She could charm her way out of anything.
 Ignoring the sign, Peggy pressed the lever on the large door to find that,
 to
-
 her surprise, it was opened. Perhaps the owners thought no one would try to
 get
 in through there, being there was a sign and all.
@@ -112,7 +102,6 @@ dwelled,
 the darker it got. After turning endless corners, and bumping into many
 walls,
 it occurred to her;
-
 "I'm lost!" "For real!"
 
 Peggy could hear the distant chatter and occasional excited
@@ -177,7 +166,6 @@ the two figures began grabbing at Peggy's clothes. Peggy fought like crazy
 to
 keep them away, but they grabbed her harder, and started stripping her of
 her
-
 shorts, and T-shirt!
 
 "What the Hell is going on here? What are you doing to me?"
@@ -218,7 +206,6 @@ behind her head. She could not figure out what the reason for this was, and
 she
 really did not care. All Peggy could think about was getting the Hell out
 of
-
 there.
 
 Suddenly, and with no warning, a gag, with a long strap was
@@ -263,14 +250,12 @@ out her awful plight.
 
 "Why are they all just standing there, watching me? Somebody do something!"
 
-
 The helpless girl's mind raced furiously as she watched the
 crowd's anticipation for what she did not know, was yet to come.
 
 Just then, the two figures reentered the room. She can see them
 now. They are two men, wearing hooded robes, with crosses embroidered on
 the
-
 front. One of them picked up a nearby microphone, and addressed the crowd:
 
 "Ladies and gentlemen; Of all the things you have seen tonight, few can
@@ -319,7 +304,6 @@ administrations in steady, unwavering motion.
 Soon, the poor girl's senses could no longer hold out, and she
 began to laugh. The torturer immediately withdrew, as if to taunt poor
 Peggy
-
 with the realization of her helplessness, and what was going to be done to
 her.
 It is now time for the second man to administer his torture too. On Peggy's
@@ -327,7 +311,6 @@ bound left foot, tickling, just under the toes, in short staccato strokes
 with
 his horse hair brush. The sensations of this tickling, sent Peggy crazy
 from
-
 the start. She began laughing very hard. The laughing quickly turned to
 screams and pleading. After about 30 seconds, he too, withdrew. By now,
 Peggy
@@ -337,7 +320,6 @@ could not stand to be tickled. Tickling was one of her worst fears in life!
 
 And to be tickled while bound helplessly, was just unthinkable. She would
 do
-
 anything to free herself.
 
 
@@ -359,10 +341,8 @@ stop. She could not bear it. Tears were stroking her hysterical, red face,
 and
 her limbs were growing tired from the involuntary muscle spasms caused by
 the
-
 tickling torture! Despite Peggy's obvious Hellish agony, her tormentors
 were
-
 not letting up! Instead, they were expanding their torture of this poor
 girl,
 to her legs. They dropped their tickling tools, and began sliding their
@@ -373,21 +353,18 @@ knees,
 kneading with abandon, just above the knee caps, which caused such violent
 spasms of laughter, that Peggy figured someone would have to see that she
 was
-
 being tortured for real!
 
 The pretend Inquisitors were making mental notes of poor Peggy's
 most ticklish parts, returning to each, time after time after time. The
 helpless creature was a pathetic sight of tortured female nerve endings.
 The
-
 persistent tickling was rapidly turning this beautiful young woman into a
 mindless hysterical muscle spasm!
 
 The crowd was silent, and completely glued to the activity.
 They all seemed amazed at the acting ability of this woman. How could
 anyone
-
 stand that much tickling? Peggy's eyes seemed to scream out at the
 audience.
 
@@ -396,9 +373,7 @@ ANYMORE TICKLING! THEY'RE GOING TO KILL ME IF THEY DON'T STOP!! CAN'T YOU
 SEE
 THAT?! OOOH OH OH NO NO NO NOOOO!!!! NOT AGAIN!!! NOT THE F-F-F-FEEET!!!
 PLEASE! PLEASE! PLEASE! PLEEEAAAIIIIEEE HA HA HA HA HA HAAAIIIEE AHA HA
-HA
-
-HA!!!!!
+HA HA!!!!!
 
 Peggy's body and mind were on fire. Every nerve ending in her
 5'8" frame had been lit on fire, like tiny fuses. Hundreds of thousands of
@@ -490,7 +465,6 @@ single muscle. Her arms were stretched high over her head, and her ankles
 were
 locked in another set of stocks at the foot of the rack, again, revealing
 her
-
 tender, bare feet for whatever abuse her tormentors might see fit. Her body
 was
 twitching from the torturous tickling ordeal, and her erogenous zones were
