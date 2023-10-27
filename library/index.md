@@ -9,6 +9,12 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [Auction at the Club]({% link library/auction-at-the-club.md %})
 
+## Kittletown
+
+### [Prologue and Chapter 1](/library/kittletown/part-one.html)
+
+### [Chapter 2](/library/kittletown/part-two.html)
+
 ## Tickle Street
 
 ### [Ashley and Melissa's History Project](/library/tickle-street/ashley-and-melissas-history-project.html)
