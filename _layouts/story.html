@@ -11,12 +11,27 @@
     </head>
     <body>
         <h1>{{ page.title }}</h1>
+        {% if page.author || page.source %}
         <p>
             Author:
+
+            {% if page.author.url %}
             <a href="{{ page.author.url }}">{{ page.author.name }}</a>
+            {% elsif page.author.name %}
+            {{ page.author.name }}
+            {% endif %}
+
+            {% if page.author && page.source %}
             on
+            {% endif %}
+            
+            {% if page.source.url %}
             <a href="{{ page.source.url }}">{{ page.source.name }}</a>
+            {% elsif page.source.name %}
+            {{ page.source.name }}
+            {% endif %}
         </p>
+        {% endif %}
         {{ content }}
     </body>
 </html>
