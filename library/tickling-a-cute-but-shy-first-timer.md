@@ -3,7 +3,7 @@ layout: story
 title: Tickling a Cute, But Shy, First Timer
 author:
     name: Down Under
-Source:
+source:
     name: Jack's Male Tickling Rack
     url: http://web.archive.org/web/20021016090621/http://www.ropejock.com/stdu/cutebutshy.html
 ---
