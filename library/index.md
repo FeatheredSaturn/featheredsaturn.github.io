@@ -23,6 +23,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [It's All For A Good Cause...](/library/its-all-for-a-good-cause.html)
 
+## [The Kidnapping of Michael](/library/kidnapping-of-michael.html)
+
 ## Kittletown
 
 ### [Prologue and Chapter 1](/library/kittletown/part-one.html)
@@ -30,6 +32,8 @@ Here is a collection of stories about tickling I found entertaining.
 ### [Chapter 2](/library/kittletown/part-two.html)
 
 ## [Rachel at the Fair](/library/rachel-at-the-fair.html)
+
+## [St. Andrew's Cross](/library/st-andrews-cross.html)
 
 ## Tales from the Golden Feather
 
