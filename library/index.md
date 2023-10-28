@@ -21,6 +21,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [F/F Tickling: Amusement Park](/library/ff-tickling-amusement-park.html)
 
+## [A Game of Chess](/library/game-of-chess.html)
+
 ## [It's All For A Good Cause...](/library/its-all-for-a-good-cause.html)
 
 ## [The Kidnapping of Michael](/library/kidnapping-of-michael.html)
