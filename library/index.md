@@ -25,6 +25,8 @@ Here is a collection of stories about tickling I found entertaining.
 
 ## [It's All For A Good Cause...](/library/its-all-for-a-good-cause.html)
 
+## [Jake and the Tickling Booth](/library/jake-and-the-tickling-booth.html)
+
 ## [The Kidnapping of Michael](/library/kidnapping-of-michael.html)
 
 ## Kittletown
@@ -50,6 +52,8 @@ Here is a collection of stories about tickling I found entertaining.
 ### [Morgan's Biology Class](/library/tickle-street/morgans-biology-class.html)
 
 ## [Tickle Strip](/library/tickle-strip.html)
+
+## [Tickled Yuppie](/library/tickled-yuppie.html)
 
 ## [Ticklers' Lottery](/library/ticklers-lottery.html)
 
